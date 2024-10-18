@@ -1,1 +1,2 @@
 # C-mo-la-pol-tica-afecta-los-mercados-financieros
+ La inestabilidad política en Europa genera un impacto directo en los mercados financieros. La incertidumbre causada por eventos geopolíticos reduce la confianza de los inversores, aumentando la volatilidad. Diversificar las inversiones y gestionar los riesgos son esenciales para enfrentar las fluctuaciones económicas que derivan de estos conflictos.
